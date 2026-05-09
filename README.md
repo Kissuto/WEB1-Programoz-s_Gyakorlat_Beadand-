@@ -1,0 +1,1 @@
+# WEB1-Programoz-s_Gyakorlat_Beadand-
